@@ -8,9 +8,8 @@ first question:
 ![image](https://github.com/user-attachments/assets/302799d7-3413-4cb6-bde3-938704683efa)
 
 
-==============================
-
-2-
+=================================================================
+=================================================================
 ![image](https://github.com/user-attachments/assets/58597386-95a7-4d28-8f48-614b9ea423f3)
 
 ![image](https://github.com/user-attachments/assets/95fe2867-50d1-4286-86b3-09b117bda48e)
